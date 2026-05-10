@@ -1,0 +1,1 @@
+# Overall - Have to Practice for atleast a week to learn all this properly
